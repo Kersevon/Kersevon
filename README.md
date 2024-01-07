@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kersevon
+- 👀 I’m interested in coding programs
+- 🌱 I’m currently learning nothin ;(
+- 💞️ I’m looking for teammates
+- 📫 How to reach me: if you ever need to contact me just send an email to kersevon0@gmail.com 
